@@ -277,12 +277,39 @@ T: Sure.  Maybe.  You did a thing.  Mazel tov.
 
 </details>
 
+### Roman Justin's Doc
+- continued indecision over his abilities
+- We see genuine intelligence in his reconaissance at vaulter - soft skills after laziness
+- However, indecisive about his argument to shutter vaulter
+- Also scared of shiv and tom’s ascendance, has dinner to suss this out
+- Despite logan going with his advice, kendall in the office at the end
+- **Where do we see Roman going as a character?**
 
 ### Shiv tells Tom that she's next in line
-emasculated Tom and sex drive reversal  
+emasculated Tom and sex drive reversal   
 tom looks so pathetic here  
 I mean it's hilarious, right??  
 
+<details> <summary> Justin's doc </summary>
+
+Shiv and Tom Relationship
+
+Shiv finally reveals truth about the position to Tom
+
+Macfadden does a great job acting someone clearly dismayed who is hiding it
+
+Enjoy the two conversations and how the libido changes
+
+Why Tom wants to have sex in the morning but not evening is obvious, but why does shiv change in the reverse?  What does this tell us about her character?
+
+Tom takes over at fox news and basically just wants to cut costs in the short term to make a name for himself
+
+Fox news lady cyd peach, latte liberals
+
+Go to dinner with Roman/Shiv and Tom snaps at Shiv as they continue to treat him like a peasant/2nd class/garbage “look like a divorce attorney from the twin cities”
+
+**Clearly there is tension on Tom’s side that is bubbling up.  Where do we see this relationship going?**
+</details>
 ### Ken at vaulter
 Bitch Kendall does not care what vaulter employees think  
 Bitch Kendall  doesn’t posture: speaking to vaulter about Union
@@ -292,6 +319,23 @@ Bitch Kendall  doesn’t posture: speaking to vaulter about Union
 
 YEE: I hear your brother's running for president.  Maybe we should get him here.  He seems like the the serious one.
 
+</details>
+
+<details> <summary> Justin's doc </summary>
+
+Investigate vaulter, then strip it for parts despite Kendall’s reluctance
+
+Was genuinely surprised by Ken’s deception, thought he might be playing his dad (though really I shouldn’t have been)
+
+It was great, continues to be dead eyed, subservient, addicted, but badass like when he gets spit on, enjoyed his comeuppance calling lawrence a cunt (Go find another chicken coop, cunt), him saying “I can take it”
+
+Genuinely enjoyed watching a bunch of people get fired
+
+Logan both enjoys making Ken gut Vaulter and is proud of the work that he does, rewards him despite it being Roman’s idea
+
+Like how kendall looks out window, reacts - frozen, happy
+
+</details> 
 
 ### Ken gives Greg an apartment
 Ken is changing. But no gift is without a cost, the party
@@ -403,7 +447,21 @@ Shiv created this by fucking over Gil re:his wife, theh speech
 Earlier with Tom, Shiv says she's going to lead from the back. But she can't stick to this. She's too eager, or something. 
 Obviously this is self-destructive. Is it because she can't be honest with herself about what she wants, so she sabotages the othe roption?
 
+<details> <summary> Justin's doc </summary>
+Tom’s advice seems legitimately smart - keep one foot in both places because logan could easily fuck you over (of course, it’s also the one piece of advice that most benefits him).  Also, chief of staff is arguably a more powerful job.
+**However, she doesn’t go with it, and needlessly venomously snaps at gil over the hand washing comment Why did she do this, needlessly sabotage her relationship with gil?**
+**Was this her plan, or a genuine fuckup?  And if it was planned, why did she do it?  Specifically to just reject tom’s advice?  Out of anger at nate, who she is needleslly fucking over with the cheating?  Makes no sense.  Thrill of fighting against father no longer there?**
 
+**What do we think the consequences of her decision to fuck over / burn a bridge with bernie sanders will be?
+
+For her? For bernie sanders?  For nate?  For way star royco?**
+
+Shiv advises her Dad, wins out 
+
+They talk at his penthouse, tells marcia to go away
+
+100% sure with his 3.5 year plan that he is fucking with her
+</summary>
 ### Kendall's aftermath
 
 - Logan makes Kendall his #1, Roman hates it
@@ -413,3 +471,10 @@ from the after-show commentary:
 - It's interesting to me that he's been through a tragedy, he's in this submissive relationship with his dad, but maybe there's some freedoms you get with being submissive, too.  And that you can do some tough stuff if you feel like you're not responsible anymore.
 
 Is his new freedom a new resilience, or the lull of irresponsibility?
+
+**How do you think Ken’s addiction will continue to play out?**
+
+**Lawrence: - Is fucking him over a problem?  Will he align with Stewy and Sandy now?** 
+
+**Why does Kendall steal the batteries?  What does this reveal about his character?  Something about relationship with Logan?  A reaction to not having power / control?** 
+
