@@ -310,6 +310,7 @@ Go to dinner with Roman/Shiv and Tom snaps at Shiv as they continue to treat him
 
 **Clearly there is tension on Tom’s side that is bubbling up.  Where do we see this relationship going?**
 </details>
+
 ### Ken at vaulter
 Bitch Kendall does not care what vaulter employees think  
 Bitch Kendall  doesn’t posture: speaking to vaulter about Union
