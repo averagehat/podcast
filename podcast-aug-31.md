@@ -152,28 +152,44 @@ Oh hey nothing happened in this episode so next episode it's still gonna be abou
 Also, nothing happened in these relationships so let's have a wrap-up for each that makes it sound like something changed:
 <details> <summary> dialogue </summary> 
 Maybe it wasn't totally great what you sent me to do.  Which is kind of the opposite of what I wanted to do.  
+
 Uh-huh.  
-Yeah.<Paste>  
+
+Yeah
+
 I mean - we're a team, right? - Yeah.  But I I don't wanna be a dick, but maybe I should have a bit more input into team tactics.  
+
 Yeah.  
+
 Sure.  Of course.  
+
 Thanks.  
+
 So, how was your weekend?   
+
 - SHIV: Me? - Yeah.  
-Anything to report? Uh Yeah.  
+
+Anything to report? 
+
+Uh Yeah.  
+
 Okay.  
+
 Do you want to know?  
+
 Oh.  I don't know, maybe later.  
 Come here.  
 (BOTH KISSING) (PHONE VIBRATING) Hey, Dad.  
-LOGAN: Hello, Pinkie.  
-Sorry I missed your call.  
-Had a lot to deal with.  
-Termites in the woodwork.  
-Insurgents.  
-Oh, yeah? Coming from where? Oh, front row, cheap seats, every-fucking-where.  
+LOGAN: Hello, Pinkie.  Sorry I missed your call.  Had a lot to deal with.  Termites in the woodwork.  Insurgents.  
+
+Oh, yeah? Coming from where? 
+
+Oh, front row, cheap seats, every-fucking-where.  
+
 SHIV: Not from me.  
+
 What are you doing at the moment? - I'm free.  
+
 - LOGAN: We'll set a date.  It's time to bring you in.  
 </details>
 ### Random
