@@ -121,7 +121,8 @@ Wow, sounds like you're riding him hard.
 Well, maybe he likes it.  
 
 Are you flirting with me? Your flirt got all over my pants.  I'll be right back.  Hey, Tom.  Just checking you talked to him.  Don't let me down, soldier.
-</dialogue>
+</details>
+
 ### The Retreat 
 Nothing happens until boar-on-the-floor. Roman and Kendall have a cute talk.   
 Gerri and Karl try to get Tom to talk to Logan. This is so fucking stupid. Why would they even think that would work? Why did everyone get dumb like mormon level dumb?  
